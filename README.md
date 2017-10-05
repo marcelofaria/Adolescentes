@@ -9,4 +9,6 @@ A Deus toda glória - https://www.cifraclub.com.br/aline-barros/entrega--a-deus-
 Igual não há - https://www.cifraclub.com.br/lauriete/igual-nao-ha/  
 
 ## Ferramentas
-Chordify - https://chordify.net/chords/para-que-entre-o-rei-morada-ao-vivo-morada-oficial  
+-> Chordify - https://chordify.net/chords/para-que-entre-o-rei-morada-ao-vivo-morada-oficial  
+-> Metrônomo - https://www.cifraclub.com.br/metronomo/
+-> Dicionário de Acordes - https://www.cifras.com.br/dicionario.htm?type=teclado
