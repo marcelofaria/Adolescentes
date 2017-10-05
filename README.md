@@ -13,4 +13,3 @@ Igual não há - https://www.cifraclub.com.br/lauriete/igual-nao-ha/
 -> Metrônomo - https://www.cifraclub.com.br/metronomo/
 -> Dicionário de Acordes - https://www.cifras.com.br/dicionario.htm?type=teclado	
 -> Dicionário mais completo - https://www.8notes.com/piano_chord_chart/em7.asp
-
